@@ -1,0 +1,1 @@
+It was an easy to find flag, we simply used the google lens And came up with coordinates of the location. With some hit and trial we found the location and the flag was there.
